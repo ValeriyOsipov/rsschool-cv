@@ -1,6 +1,6 @@
 | Osipov Valeriy |
 |:-------------:|
-| ![фото](https://1avatara.ru/pic/cartoons/mult076.jpg "фото") |
+| ![фото](https://1avatara.ru/pic/cartoons/mult076.jpg "photo") |
 | +7 (982) 993-09-21 |
 | freebs@mail.ru |
 
